@@ -1,1 +1,2 @@
-wala ka dapat mabasa d2
+pag na basa mu i2 papa pwit ka
+
